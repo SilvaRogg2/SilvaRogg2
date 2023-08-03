@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SilvaRogg2df
 - 👀 I’m interested in ...ewrsda
-- 🌱 I’m currently learning ..ew
+- 🌱 I’m currently learning ..e
 - 💞️ I’m looking to collaborate on ..
 - 📫 How to reach me ...xcv
 
