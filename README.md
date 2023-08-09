@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SilvaRogg2dffdsm
 - 👀 I’m interested in ...ewrsdar
 - 🌱 I’m currently learning ..er
-- 💞️ I’m looking to collaborate on ..´
+- 💞️ I’m looking to collaborate on ..´a
 - 📫 How to reach me ...xcv
 
 <!---fg
